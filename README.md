@@ -1,2 +1,2 @@
-# valuxshop.github.io
+# Valux | Games
 Best Place To Play Unblocked Games!
